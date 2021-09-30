@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marissa6
 - 👀 I’m interested in restoration ecology and botany
-- 🌱 I’m currently learning how to prepare an experimental design and implement it 
+- 🌱 I’m currently learning how to use my computer
 - 💞️ I’m looking to collaborate on learning new things
 - 📫 How to reach me ... please email me @ marissalanemassee@gmail.com
 
